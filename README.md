@@ -1,0 +1,1 @@
+# akamaitaka.github.io
