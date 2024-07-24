@@ -1,2 +1,5 @@
-# akamaitaka.github.io
 - [Medium](https://akamail.medium.com)
+- [https://www.quora.com/profile/Akamai-Hokosi](https://www.quora.com/profile/Akamai-Hokosi)
+- [https://www.youtube.com/channel/UCKPu60n16CXHx_U7cxiLOKA](https://www.youtube.com/channel/UCKPu60n16CXHx_U7cxiLOKA)
+- [https://x.com/akamaihokosi](https://x.com/akamaihokosi)
+- [https://www.pinterest.com/ahokosi/](https://www.pinterest.com/ahokosi/)
